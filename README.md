@@ -22,7 +22,7 @@ $\text{\color{#C9C9C9}social awk ,,}$ $\text{\color{#959595} immature .  ✧　�
 
    <details>
 <summery> 
-  I usually have dependency on people and I’m really shy, I may struggle to speak or communicate from my anxiety disorder. I don’t have many boundaries as I don’t like being rude! no strict dni, just don’t be a racist or weirdo I suppose! I’m dating my beloved, I am polyamorous and male attracted. I struggle to reach out to people first, and I also may sometimes require people to make decisions or sentences for me. I’m sorry if this is frustrating!!! I like bad things, the moon I rot behind, unstable universe, phighting, a reGect, args and other things like roblox as of now! I like to play vrchat, roblox, minecraft and well obviously ponytown. I’m a bit sensitive aswell,, I love making friends, i just tend to be too anxious to do so.
+  I usually have dependency on people and I’m really shy, I may struggle to speak or communicate from my anxiety disorder. I don’t have many boundaries as I don’t like being rude! no strict dni, just don’t be a racist or weirdo I suppose! I’m dating my beloved, I am polyamorous and male attracted. I struggle to reach out to people first, and I also may sometimes require people to make decisions or sentences for me. I’m sorry if this is frustrating!!! I like bad things, the moon I rot behind, unstable universe, phighting, a reGect, args and other things like roblox as of now. I like to play vrchat, minecraft and well obviously ponytown. I’m a bit sensitive aswell,, and again im not very social.
 </summery>
 </details>  <p align=right>
  <img width="150" alt="IMG_7006" src="https://github.com/user-attachments/assets/5ea31bec-8dc1-4141-9296-ccdf0f6cd34c" />
